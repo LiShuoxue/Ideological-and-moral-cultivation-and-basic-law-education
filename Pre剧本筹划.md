@@ -18,5 +18,15 @@
 >
 >曰：“如斯而已乎？”曰：“修己以安百姓。修己以安百姓，尧、舜其犹病诸！”
 
+
+## 快速链接
+
+[《孟子》全文](https://so.gushiwen.org/guwen/book_11.aspx)
+
+[《论语》全文](https://so.gushiwen.org/guwen/bookv_37.aspx)
+
+[《孔子家语》全文](https://so.gushiwen.org/guwen/bookv_4128.aspx)
+
 [《孔子传》相关1](http://www.quanxue.cn/LS_ChunQiu/Kong/Kong30.html)
 
+[《孔子传》相关2](http://www.quanxue.cn/ls_chunqiu/Kong/Kong29.html)
