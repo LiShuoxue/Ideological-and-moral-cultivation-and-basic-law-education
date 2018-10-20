@@ -18,5 +18,5 @@
 >
 >曰：“如斯而已乎？”曰：“修己以安百姓。修己以安百姓，尧、舜其犹病诸！”
 
-
+[《孔子传》相关1](http://www.quanxue.cn/LS_ChunQiu/Kong/Kong30.html)
 
