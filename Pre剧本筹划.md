@@ -21,6 +21,7 @@
 >"愿车马，衣轻裘，与朋友共，蔽之而无憾。”
 >
 >"愿无伐善，无施劳。”
+>
 >“愿闻子之志。”子曰：“老者安之，朋友信之，少者怀之。”
 
 ## 快速链接
@@ -34,3 +35,6 @@
 [《孔子传》相关1](http://www.quanxue.cn/LS_ChunQiu/Kong/Kong30.html)
 
 [《孔子传》相关2](http://www.quanxue.cn/ls_chunqiu/Kong/Kong29.html)
+
+## Script
+
